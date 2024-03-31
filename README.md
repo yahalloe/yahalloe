@@ -2,7 +2,9 @@
 
 I'm a student and likes anime a lot.
 
-### check out my 3x3 (top 9) anime of all time @ [yahallo.me](https://www.yahallo.me). 
+**Check out my 3x3 (_top 9_) anime of all time:**  
+
+- [yahallo.me](https://www.yahallo.me). 
 
 💬 Ask me about anything, espeacially with anime.
 
